@@ -1,4 +1,4 @@
-# redesigned-happiness
+# Dreamla
 Dreamla: The Realm of Seven Trials
 
 "Dreamla is not just a story. It is a luminous map of the human soul drawn in ink of wonder and stitched with the golden thread of courage."
